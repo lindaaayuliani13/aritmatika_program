@@ -1,0 +1,2 @@
+# aritmatika_program
+Linda_Yuliani_3411151168_SIE-C
